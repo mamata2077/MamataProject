@@ -1,2 +1,1 @@
-<<<<<<< HEAD
 # MamataProject tdrddxdxdxhdsd
